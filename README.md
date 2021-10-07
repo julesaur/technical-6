@@ -1,1 +1,0 @@
-# technical-6
